@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @cindypcz
-- 👀 I’m interested in outdoor activities, music and dogs!
-- 🌱 I’m currently learning dog training and fintech
+- 👀 I’m interested in outdoor activities, music, cooking and DOGS!
+- 🌱 I’m currently learning dog training
 - 💞️ I’m looking to collaborate on cool ideas
 - 📫 How to reach me cindyzhangpc@gmail.com
 
